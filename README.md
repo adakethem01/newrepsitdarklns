@@ -1,1 +1,1 @@
-# newrepsitdarklns
+# BU ALT YAPI DARKLON CODE YE AİT DİR!
