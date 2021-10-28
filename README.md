@@ -1,3 +1,1 @@
 # BU ALT YAPI DARKLON CODE YE AİT DİR!
-wsada
-yef
